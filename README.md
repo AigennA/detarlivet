@@ -1,0 +1,2 @@
+# detarlivet
+yazilim
